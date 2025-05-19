@@ -1,0 +1,1 @@
+# Mursist-Yapay-Zeka-ile-Veri-Analizi-Uygulamasi_GPT
